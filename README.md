@@ -1,2 +1,2 @@
-# sana.github.io
+# sana
 Birthday wish to sana by anonymous
